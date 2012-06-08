@@ -11,3 +11,7 @@ Pruevas
 	Lo que quede
 
 modificare gitinore para android
+
+khaJLÑKFALJLAKDJd
+JKASDKJADhAD
+AKJDShASDAKJDH
